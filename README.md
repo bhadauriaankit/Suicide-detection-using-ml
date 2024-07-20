@@ -1,2 +1,1 @@
-https://eighty-taxes-type.loca.lt/
-Uploading project Suicide detection.mp4…
+https://github.com/user-attachments/assets/2765fa87-8945-4796-a3b9-2789e5763d99
